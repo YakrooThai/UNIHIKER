@@ -1,0 +1,12 @@
+0 7805
+1 Ds1302
+2 lm2575
+3 SDCARD
+4 ULN2003
+5 usb typeA
+6 No Device
+7 FireBeetle2
+8 Beetle
+9 ESP32
+10 RaspberryPICO
+11 RP2040
