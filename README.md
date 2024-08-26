@@ -12,3 +12,5 @@ https://www.youtube.com/watch?v=hLeqoPUdkGg
 ![aiSmart](https://github.com/user-attachments/assets/3d20a7e1-9864-48c3-afc3-cca49c6acda8)
 
 https://www.youtube.com/watch?v=pJgltvAUyr8
+
+https://www.youtube.com/watch?v=LzU8oGy_Suw
