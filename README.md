@@ -17,3 +17,9 @@ https://www.youtube.com/watch?v=pJgltvAUyr8
 
 
 https://www.youtube.com/watch?v=LzU8oGy_Suw
+
+
+![Untitled (3)](https://github.com/user-attachments/assets/d4d30be8-ac29-4177-b1fc-374c6313fa7f)
+
+https://www.youtube.com/watch?v=LcZKSI1GpTg
+
