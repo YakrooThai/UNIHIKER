@@ -3,6 +3,8 @@ Introduction to UNIHIKER Getting Started: Stepping into the World of AI #trendin
 
 ![Untitled (23)](https://github.com/YakrooThai/UNIHIKER/assets/56666070/ce8ab453-981c-44af-b0b0-78f9ba61cc76)
 
+https://www.youtube.com/watch?v=6pUJzlpE5dA
+
 https://www.youtube.com/watch?v=hLeqoPUdkGg
 
 https://www.youtube.com/watch?v=gWk3m6_MkY8
